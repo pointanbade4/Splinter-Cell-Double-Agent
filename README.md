@@ -208,4 +208,4 @@ Splinter Cell Double Agent is provided as a full free version, with all features
 Download Splinter Cell Double Agent now and immerse yourself in an exhilarating world of espionage and action!
 
 ---
-**Last updated:** 2026-09-18 10:19:25 UTC
+**Last updated:** 2026-09-18 14:43:09 UTC
